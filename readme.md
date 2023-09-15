@@ -1,1 +1,1 @@
-Hallo Rismaa Dinot di sinii :2
+Hallo Rismaa DINA di sinii :2
